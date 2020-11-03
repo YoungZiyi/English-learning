@@ -41,7 +41,7 @@ I would play the shit out of George Washington.
 You know what I mean?  
 No shame in my game.  
 
-> No shame in my game的意思是说, Matt能在"长城"里做主演, 那么Jimmy演美国总统也没什么丢脸的  
+> No shame in my game 的意思是说, Matt能在"长城"里做主演, 那么Jimmy演美国总统也没什么丢脸的  
 > You have nothing to be embarrassed or ashamed of  
 
 I'll play George Washinton Carver if they let me.  
@@ -97,7 +97,7 @@ and never come back.
 So much pressure to represent.  
 I got to be a good Asian everywhere now.  
 I got to tip everywhere I go.  
-That was one of the major adventages of being Asians is  I could just pretend I don't know how to tip.  
+That was one of the major adventages of being Asians is I could just pretend I don't know how to tip.  
 Y'all know what a Chinese tip is?  
 Chinese tip, it doesn't matter how big you bill is, you tip $2, That's a Chi--  
 That's a Chinese tip man.  
@@ -113,12 +113,82 @@ but you're the first Asian guy I've ever been with.
 I'm like Ok,  
 What do you want, a fortune cookie? Like wha-?   
 
-> 在美国，每顿中餐的尾声都是幸运饼干   
+> fortune cookie 在美国，每顿中餐的尾声都是幸运饼干   
 > 美国人民对于幸运饼干的依赖，超乎我们的想象。在全世界，每年都有30亿个幸运饼干被吃掉，其中绝大多数来自美国。最大的幸运饼干制造商是总部位于纽约布鲁克林的Wonton Food Inc.（云吞食品公司），他们每天生产超过450万个幸运饼干。  
 
 Like what do you want?  
 She acted like she just unlocked a new character on Street Fighter or some shit.  
 Why do you feel the need to say that?  
 I love old Asian people, man.  
-00:05:52  
+Yeah, yeah, old Asian people are the best.  
+But why are all old Asian people always stretching in the park?  
+Like, it doesn't matter which city you're in,  
+which park you go to, you wake up 6:30 in the morning,  
+you see about 250 old Asian people, all doing this shit at the same time,  
+for like three hours,  
+What the fuck are they doing?  
+And my dad was trying to explain to me.  
+He's like, oh they're warming up to do Tai Chi.  
+I'm like, for how long?  
+And ironically, Tai Chi is a warm-up in itself.  
+So they warming up to warm up for nothing.  
+And I think a lot of Americans, like people think that Tai Chi to some, like exotic Chinese secret. Some oriental art.  
+
+> exotic adj. 异国的；外来的；异国情调的  
+
+No Tai Chi is just exercise for people who are too old to exercise.  
+Let's not exoticize these things, you know?  
+It's actually super simple to do Tai Chi.  
+I went to a park, watched those old people for like an hour,  
+and I learned how to do Tai Chi.  
+Very simple, all you gotta do is two things.  
+All you gotta do to do Tai Chi is pretend you're wiping down a window,  
+and getting a blow job at the same time.  
+You guts seenm skeptical,  
+
+> skeptical adj. 怀疑的   
+
+Allow me to demonstrate.  
+It's very simple.  
+All you gotta do, you get it your little stance, right, OK?  
+
+> stance n. 立场；姿态；位置；准备击球姿势  
+
+And then you wipe down a window.  
+And now you get a blow job.  
+Then you lift her head up, because you're a gentleman, you know?  
+That's Tai Chi.  
+Thank you, thank you.  
+Let's not exoticize these Asian things.  
+They're just old people reminiscing about the days when they got sucked off, that's it.  
+
+>> reminiscing v. 追忆
+
+You got to take advantages of all these, like Asian stereotypes, you know?  
+If people are just going to exoticize us, that's fine.  
+Whenever somebody asks me to do something I don't want to do,  
+I just make up a fake Chinese holiday now.  
+It's like, hey Jimmy can you help me move next Monday?  
+I'm like Monday?  
+That's the Dragon Boat Lychee Boba Festiva, dog.  
+I can't, I can't just help you move.  
+My grandfather died for that shit, you understand?  
+And if people are just gonna assume that I don't speak English, that's fine.  
+That's what I do now when I get pulled over by the cops.  
+I just pretend I don't speak English.  
+I haven't gotten a ticket in five years.  
+Last time I got pulled over.  
+the cop was knocking on my window.  
+He was like, sir, you do understand you can't make a right turn here?  
+It says right there on the sign.  
+You can't make a right turn.  
+So I just looked up at him, I was like, Oh, I don't know.  
+I'm sorry, but my English not very good.  
+So I can not read the sign.  
+And he was really confused. He just looked back down at me.  
+He was like, sir, the sign is not in English.  
+It's a diagram, so I don't understand how that's a language barrier?  
+So I just looked up at him, I was like, Oh, I don't know.  
+But do you know today is the Dragon Boat Lychee Boba...  
+00:08:36  
 
