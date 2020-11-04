@@ -78,7 +78,7 @@ he wins an Oscar.
 If I do a Chinese accent, I'm automatically from the old country.  
 Representation matters man.  
 A lot of Asian people come up to me, very proud, very nice.  
-They're like, Jimmy, thank you for represent the Asian, man.  
+They're like, Jimmy, thank you for represent the Asians, man.  
 I'm like, eh, you're welcome.  
 But you do understand, It's not really a choice, right?  
 Like, when you wake up Asian, you can only represent Asians.  
@@ -162,7 +162,7 @@ Thank you, thank you.
 Let's not exoticize these Asian things.  
 They're just old people reminiscing about the days when they got sucked off, that's it.  
 
->> reminiscing v. 追忆
+> reminiscing v. 追忆
 
 You got to take advantages of all these, like Asian stereotypes, you know?  
 If people are just going to exoticize us, that's fine.  
@@ -190,5 +190,66 @@ He was like, sir, the sign is not in English.
 It's a diagram, so I don't understand how that's a language barrier?  
 So I just looked up at him, I was like, Oh, I don't know.  
 But do you know today is the Dragon Boat Lychee Boba...  
-00:08:36  
+You got to use it to your advantage people.  
+I'm very happy to be here, man.  
+Thank you, Oh, you guys don't have to, thank you.  
+Thank you for all your support.  
+It's been great, it's been really great.  
+Like, I'm finally... I'm like quasi-famous now.  
+Nothing really changed.  
+I might get a free appetizer at select PF Chang's.  
+That's about it. Nothing really changed.  
+I was still using Tinder up until like a year ago.  
+This is true story.  
+But now I realize I got a whole new set of issue on Tinder.  
+Like now, when I match with a girl,  
+she doesn't believe that it's me.  
+Like ew, that's not you.  
+You're not that guy from this thing and that thing.  
+I'm like, who the fuck is using me as a fake profile?  
+You gotta dig real deep to use me. man.  
+I feel like there's so many better choices out there.  
+One time, one time, my agent told me that I have a good look.  
+And I'm like, thanks, dude, I appreciate that.  
+But then it took me years to realuze that having a good look is totallu different than being good-looking.  
+I still don't know what the fuck it means.  
+And look, I'm not being self-deprecating, Ok?  
 
+> self-deprecating adj. 自贬的；谦虚的（等于 self-deprecatory）  
+
+That's Hollywood talk, I don't listen to that shit.  
+I understand that, in real life, I'm super good-looking...  
+if you into anime.  
+You gotta get in where you fit in, people.   
+One time, I went over to the girl's house,  
+she has this, like, Naruto anime poster in her bedroom.  
+I knew I was fucking that night.  
+You got to know your demo people.  
+Asian people, we don't need Tinder anymore.  
+We just go to BTS concerts.  
+That't how we do that parking for pimping.  
+I've been dating a lot of tall girls lately,  
+because it makes me look successful.  
+No, no, I think tall women are beautiful.  
+But some of them like to wear heels.  
+That's just disrespect.  
+Like, you're already 5 inches taller than me.  
+Wht the fuck you wearing heels?  
+She's like, it makes my ass look better.  
+I'm like, your ass is at my eye level right now.  
+Neither of us look good, OK?  
+I look like a child, and you look like a child molester.  
+Last time, the last time I took a tall girl to this concert.  
+I don't know if you guys know this,  
+but apparently, tall people have fun at concerts.  
+Are you guys aware of that?  
+I'm 5'5, I just go to concerts to smell other people's armpits.  
+I'm like, what the fuck is th point of this?  
+She was having the time of her life.  
+doing whatever tall people do at the concerts, you know.  
+jumping around, obstructing other people's views, seeing everything.  
+I was frustrated, I had enough.  
+So I just looked up at her, I was like,  
+hey! pick me up. this is bullshit, I paid for these tickets, Ok?  
+I want to see Billy Eilish, too. come on.  
+00:12:58  
