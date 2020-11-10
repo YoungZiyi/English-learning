@@ -252,4 +252,74 @@ I was frustrated, I had enough.
 So I just looked up at her, I was like,  
 hey! pick me up. this is bullshit, I paid for these tickets, Ok?  
 I want to see Billy Eilish, too. come on.  
-00:12:58  
+I know I'm became an adult finally,  
+because now my favorite TV show is "Fixer Upper" on HGTV.  
+That's the greatest show of all time.  
+You guys watch it, Chip and Joanna Gaines, "Fixer Upper"?  
+It's a great show, right? It's a great show.  
+Like, it's really a beautiful relationship.  
+Joanna does all the interior decorating,  
+and she brings all the furniture and makes the house look amazing.  
+And Chip just hires Mexicans to do everything for him.  
+It's the most symbiotic American relationship ever.  
+And, it's a really nice show.  
+It's a feel good show.  
+It's an inspiring show.  
+You watch the show and you're like, man, one day, maybe my house could look that nice.  
+if I moved to Waco, Texas.  
+If I just give up all my life and move to Waco, Texas,  
+maybe I can have a new open concept kitchen.  
+I don't know about you guys.  
+Shit is expensive where I live in LA.  
+And I watch this show and I just get frustrated.  
+Because you get, like, these like,  
+entry-level-job having people in Texas.  
+
+> entry-level-job 入门级别的工作  
+
+And they're like, Joanna, We're looking for a six bedroom house on three acres of land and out budget's $50.000.  
+Bitch, I can't even buy a crack house in Compton for $50.000.  
+HGTV is just basically "MTV Cribs" for adults.  
+Because when you were 15, you had vrazier dreams, you know?  
+You watch "MTV Cribs"  and you're like,  
+oh, man, one day, I hope I can have a Lamborghini.  
+One day, I hope I can have a fridge with only Gatorades.  
+And now, you're like 35, your dream just get a little more realistic.  
+You're watching HGTV, and you're just, like, oh, man, one day, I wish I could just fix this roof.  
+Look, I'm doing, like, fine by any measure, you know?  
+But I still live in a one-bedroom apartment because that shit is rent-controlled.  
+
+> rent-controlled 租金管制??? 啥意思?  
+
+And when the Asian people, when we find a good deal,  
+we're never letting that shit go. yeah.  
+That apartment is about to be generational.  
+It's gonna get passed to my nephew, his kids, and all that.  
+It's mine now, basically.  
+I don't want to buy a house. I live by myself,  
+and I'm scared of ghosts.  
+I've seen enough movies to know that ghosts only haunt houses.  
+not one bedroom apartments.  
+I've seen enough Hollywood movies to know that ghost only haunt rich people's houses.  
+in the suburbs, preferably with a newborn baby, because they got way too much to lose.  
+Shit is high stakes.  
+I live by myself. I ain't got nothing to lose.  
+A ghost come haunt me, I just move.  
+Worse comes to worse. I lose my securith deposit.  
+Fuck it, you know?  
+What's a ghost gonna do?  
+He's gonna follow me from unit to unit.  
+start knocking on my light fixtures, and shit.  
+
+> light fixtures 灯固定架???  
+
+I'm like, hey, dog, go ahead. It's not even mine.  
+You fuck around, we both get evicted, OK?  
+Like, you don't wanna be a homeless ghost.  
+And if you really think about it, what kind of loser ghost haunts an apartment?  
+That means that ghost probably died in an apartment.  
+He didn't even die a homeowner.  
+I ain't got no respect for that shit.  
+He comes haunt me, I just start talking shit to him.  
+Like, hey, dog, what was your credit score when you died, though, like, for real?  
+00:16:55  
