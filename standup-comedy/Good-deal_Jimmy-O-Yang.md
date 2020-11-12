@@ -1,3 +1,6 @@
+
+> https://www.bilibili.com/video/BV16p4y1Q7aE  
+
 How's everybody doing?  
 yes, yes.  
 Thank you, Thank you!  
@@ -322,4 +325,61 @@ He didn't even die a homeowner.
 I ain't got no respect for that shit.  
 He comes haunt me, I just start talking shit to him.  
 Like, hey, dog, what was your credit score when you died, though, like, for real?  
-00:16:55  
+I was born in Hongkong. Any Hongkong people?  
+A couple of us. awesome man.  
+For you guys that haven't been following the news.  
+Hongkong is a part of japan.  
+I'm joking, obviously.  
+But I said the same shit in Kansas City.  
+and people were like, really?  
+Wow, we learned something new today, Bill.  
+I did a show in Kansas City. I don't know why either.  
+People are very nice in Kansas City.  
+I'm not gonna say, like, they're racist or anything like that.  
+but they're just like, curious.  
+Like, they're watching me like they're watching an episode of National Geographic.  
+And a pack of giraffes just ran by, and they're like, oh, I've never seen one of those in real life.  
+It looks majestic.  
+
+> majestic adj. 庄严的；宏伟的  
+
+This one kid in Kansas City came up to me, after the show, very nice kid.  
+This is what he said, He was like.  
+Jimmy, thought you were really funny man,  
+I don't mean to offend you,  
+that's when you know you're about to get offended.  
+He was like, I don't mean to offend you.  
+But when I first saw your poster.  
+I thought you were gonna play the violin.  
+I was like, I do, motherfucker. just not right now. shit.  
+I keep it a secret.  
+See, I gotta say, I got some of the nicest crowds in the business.  
+I rarely ever get heckled.  
+
+> heckle vt. 诘问；激烈质问；以麻梳梳理  
+
+And one time I was talking about how I used to play the violin.  
+An old Chinese lady sitting in the front just stood up and screamed out first chair or second chair?  
+And I was like, thanks, ma'am, fifth chair, actually.  
+fifth chair. I wasn't very good. I wasn't good.  
+I grew up very stereotypically in Hongkong.  
+Like my real name is not even Jimmy.  
+That's my English name.  
+My real name is Man-Sing.  
+In Cantonese, ...  
+It stands for 10000 success.  
+yeahyeahyeah  
+I have very ambitious parents.  
+And now I'm telling dick jokes and doing Tai Chi on stage.  
+Jimmy was just kind of like an arbitrary English name that just sounded easy.  
+And my dad, he named himself Richard.  
+I was like, dad, why'd you name yourself Richard?  
+He was like, because I want to be rich.  
+It make so much sense.  
+And then they named my older brother Roger after the james Bond actor Roger Moore.  
+yeah, but my brother hated that name.  
+He was like, man, it makes me sound like an old white guy.  
+So eventually he changed his own name to Roy.  
+So now he sounds like an older white guy.  
+And now his full name is Roy Roger, which is the oldest white guy to ever white.  
+00:20:03  
