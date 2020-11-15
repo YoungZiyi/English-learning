@@ -382,4 +382,86 @@ He was like, man, it makes me sound like an old white guy.
 So eventually he changed his own name to Roy.  
 So now he sounds like an older white guy.  
 And now his full name is Roy Roger, which is the oldest white guy to ever white.  
-00:20:03  
+I grew up very stereotypically, man.  
+I didn't play basketball or football.  
+I grew up playing pingpong. Competitively.  
+That was a serious national sport back home, man.  
+You know, I didn't go to any, like, fun summer camp, space camp.  
+My dad sent me to a pingpong training camp in Guangzhou China.  
+I almost died.  
+It was 100 kids competing for one spot on national team.  
+It was basically Fortnite with pingpong paddles.  
+We took that shit seriously, though.  
+My dad would take me to every practice, every tournament game.  
+And he always tried to give me a pep talk before every game.  
+
+> pep talk 鼓舞士气的讲话  
+
+But you know, Asian parents, they're way too honest.  
+So every pep talk just turned into an insult.  
+Like, he would come up to me, be like,  
+Jimmy, Jimmy. You're going to play well, OK?  
+Even though you slow, even though you weak, and you suck.  
+And then he just walk away.  
+I was very good at math.  
+That's a big Asian stereotype.  
+I think there's some truth to that.  
+Not because of some weird genetic thing.  
+Just because our parents cared so much about mathematics and academics.  
+You guys seen it, You guys seen those, like, Kumon Learning Centers in those strip malls, right?  
+Kumon Learning Centers, for you guys that don't know, are basically detention camps for young Asian children.  
+You can tell that place is kind of fucked up by the look of its logo.  
+Because it's supposed to be a smiley face, but it's not really smiling.  
+It's just like, meh.  
+My parents were way too cheap to send me to Kumon.  
+They got a different strategy.  
+They never let me use a calculator until I turned 15.  
+So I can work on my brain function.  
+That's an old school Chinese strategy.  
+So when I turned 15, it was a very special ocaasion.  
+It was basically my Quinceanera.  
+
+> Quinceanera n.成人礼  
+
+My dad just gave me a TI-83 Plus.  
+like, you're woman now, OK?  
+But when you're a kid, when you parents tell you you can't do something, what do you do?  
+You rebel, right?  
+So when I was 14 years old.  
+I stole my brother's calculator.  
+I stole Roy Roger's calculator.  
+and I locked myself in my room.  
+And I started rebelling.  
+I started doing math homework.  
+Other kids were, like, fucking around with, like, alcohol and drugs.  
+I was fucking up some parabolas, you know?  
+
+> parabolas n. 抛物线  
+
+Locked myself in a room, I was just punching in numbers.  
+I was like, oh, man, this feels great, you know?  
+It's so wrong. It's awesome.  
+My dad was pissed.  
+He was knocking on the outside of the door.  
+He doesn't like locked doors in the house.  
+And he was screaming.  
+He was like, Jimmy! Jimmy!  
+What're you doing inside?  
+come out right now.  
+I know you;re in there using a calculator.  
+Come on right now.  
+I was so scared I didn't know what to do.  
+And he unlocked the door, and he came in.  
+I went into full panic mode.  
+So I just threw away the calculator.  
+and I pulled down my pants.  
+I was like, Dad, I was just jerking off.  
+And he came in, and he looked at me.  
+And he looked at the math homework.  
+And he was like, good, good, very good.  
+Very good, you must really like math.  
+That's good. keep it up.  
+Because there is nothing, there is nothing.  
+that will make an Asian father more proud than to see his son jerk off to his math homework.  
+I grew up very stereotypically, man.  
+00:24:10  
